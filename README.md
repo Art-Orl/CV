@@ -1,1 +1,1 @@
-https://github.com/Art-Orl/gh-pages/
+https://github.com/CV/

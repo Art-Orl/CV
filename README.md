@@ -1,1 +1,1 @@
-# CVhttps://rolling-scopes-school.github.io/cv/cv/
+https://github.com/Art-Orl/CV/
